@@ -1,2 +1,2 @@
-# Coercion-Provocation
-Supplementary Online Appendix for Coercion-Provocation
+# Online Supplementary Appendix for "Coercion and Provocation"
+Click on the PDF to see the Online Supplementary Appendix
